@@ -1,0 +1,2 @@
+# icom
+Trading and blogging
